@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ChandanGowdaKP
 - 👀 I’m interested in sports
 - 🌱 I’m currently pursuing MCA
-- 💞️ I’m looking to collaborate on software proejects
+- 💞️ I’m looking to collaborate on software projects
 - 📫 You can reach me at chandankp613@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
